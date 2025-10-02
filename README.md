@@ -1,5 +1,3 @@
-i dont know what to put it this reade me but 
-
-#ALEX IS DUMB
-
-i dont know if that made the text big but im not updating this lolollol
+# ALEX IS SMART!!!
+same as alex is dumb except i changed it to be alex is smart because my name is alex
+screw you sega!!!
